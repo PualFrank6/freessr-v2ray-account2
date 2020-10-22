@@ -13,4 +13,6 @@ Best wishes!
 打不开换 ssrthe.com    thessr.ink
 
 
+新V2订阅链接：
 
+https://situcloud.cf/link/O2W7JuSJ1PAAlzPN?sub=3
